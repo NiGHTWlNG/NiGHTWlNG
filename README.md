@@ -12,7 +12,7 @@ shig ── he/her ── polish
 </h5>  
 <h4 align="center">
 
-[rentry](https://rentry.co/rmkshig) .. be normal in my [gstbook](https://bemyguest.123guestbook.com/)
+[rentry](https://rentry.co/rmkshig) .. be normal in my [gstbook](https://bemyguest.123guestbook.com/) crd to [kianaism](https://www.tumblr.com/kianaism/736706092205277184/furina-graphics?source=share) on tumblr for graphics 
 </h4> 
 <h4 align="center">
 
@@ -31,4 +31,4 @@ i follow people on github for fun ! :3ㅤㅤ feel free to int in gameㅤㅤ whis
 <img src="https://64.media.tumblr.com/dd87e708ccefc0793c8382f7f41b9f1f/ddfa5a2be902b423-40/s100x200/688c952cc49604a9e768868fcb2e1537abd62c34.pnj"/><img src="https://64.media.tumblr.com/430d60dc6297321c0334c852780dad92/fbd78c00206bcb28-2e/s100x200/9698bb6db9106c622196141d4ef9c23d27ca3beb.gifv"/> 
 </p>
 
-crd to [kianaism](https://www.tumblr.com/kianaism/736706092205277184/furina-graphics?source=share) on tumblr for graphics 
+
