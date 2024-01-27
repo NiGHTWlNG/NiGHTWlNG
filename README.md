@@ -12,10 +12,16 @@ shig ── he/her ── polish
 </h5>  
 <h4 align="center">
 
-i follow people out of boredom !
-check out [rentry](https://rentry.co/rmkshig) for more info ab me
+[rentry](https://rentry.co/rmkshig) .. be normal in my [gstbook](https://bemyguest.123guestbook.com/)
 </h4> 
+<h4 align="center">
 
+if you are mad over a github following, simply block me
+</h4> 
+<h4 align="center">
+
+i follow people on github for fun ! :3 feel free to int in game
+</h4> 
 <h5 align="center">
 <img src="https://64.media.tumblr.com/c537725480c79aa443fe84cd77e50556/62b1ff3c81ee6a21-3c/s400x600/9c3306dd91ff60384ade76267c42e756c6a09d0f.pnj"/>
 </h5>  
