@@ -12,7 +12,7 @@ shig ── he/her ── polish
 </h5>  
 <h4 align="center">
 
-[rentry](https://rentry.co/rmkshig) .. be normal in my [gstbook](https://bemyguest.123guestbook.com/) crd to [kianaism](https://www.tumblr.com/kianaism/736706092205277184/furina-graphics?source=share) on tumblr for graphics 
+[rentry](https://rentry.co/rmkshig) .. be normal in my [gstbook](https://bemyguest.123guestbook.com/) .. crd to [kianaism](https://www.tumblr.com/kianaism/736706092205277184/furina-graphics?source=share) on tumblr for graphics 
 </h4> 
 <h4 align="center">
 
