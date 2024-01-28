@@ -12,7 +12,7 @@ shig ── he/her ── polish
 </h5>  
 <h4 align="center">
 
-ㅤㅤㅤㅤ[rentry](https://rentry.co/rmkshig) ㅤㅤㅤㅤ be normal in my [gstbook](https://bemyguest.123guestbook.com/)ㅤㅤㅤㅤ crd to [kianaism](https://www.tumblr.com/kianaism/736706092205277184/furina-graphics?source=share) on tumblr for graphicsㅤㅤㅤㅤif you are mad over a github following, simply block meㅤㅤusually above gi on safeㅤㅤw2i if i dont respondㅤㅤㅤㅤi follow people on github for fun ! :3ㅤㅤㅤㅤ feel free to int in gameㅤㅤㅤㅤ whisper me 'sano smells' for a cookie
+ㅤㅤㅤㅤ[rentry](https://rentry.co/rmkshig) ㅤㅤㅤㅤ be normal in my [gstbook](https://bemyguest.123guestbook.com/)ㅤㅤㅤㅤ crd to [kianaism](https://www.tumblr.com/kianaism/736706092205277184/furina-graphics?source=share) on tumblr for graphicsㅤㅤㅤㅤif you are mad over a github following, simply block meㅤㅤㅤㅤusually above gi on safeㅤㅤㅤㅤw2i if i dont respondㅤㅤㅤㅤi follow people on github for fun ! :3ㅤㅤㅤㅤ feel free to int in gameㅤㅤㅤㅤ whisper me 'sano smells' for a cookie
 </h4>
 
 <h5 align="center">
