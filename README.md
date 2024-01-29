@@ -1,14 +1,14 @@
 ***
 
 <h5 align="center">
-<img src="https://64.media.tumblr.com/ce9ed24e6321a2e6b1a76f515b2e2ce8/62b1ff3c81ee6a21-c7/s400x600/df9f3e98a4f73bc3265766d9f0c3b3caf614ca26.pnj"/>
+<img src="https://64.media.tumblr.com/554072e11382010218d1eea0d2e9e12c/6c4e914f0ab02e3a-75/s400x600/5ef979cb4f87b53e87bfdc29767c12f8134cbce1.pnj"/>
 </h5>  
 
 <h4 align="center">
 shig ── he/her ── polish
 </h4> 
 <h5 align="center">
-<img src="https://64.media.tumblr.com/2beed716bd02bd9a2be96b577e773e70/6c4e914f0ab02e3a-c2/s2048x3072/e1b1bc4418c9c15d8ae715910b668b1496373c92.pnj"/>
+<img src="https://64.media.tumblr.com/5d39b95f2046d5d9df60f1cd8b98d0e4/45a7ce0c01ac1242-4b/s1280x1920/d49ae4f526971b9e8bcd3b102c920d2b77a2f7a6.pnj"/>
 </h5>  
 <h4 align="center">
 
@@ -16,7 +16,7 @@ shig ── he/her ── polish
 </h4>
 
 <h5 align="center">
-<img src="https://64.media.tumblr.com/c537725480c79aa443fe84cd77e50556/62b1ff3c81ee6a21-3c/s400x600/9c3306dd91ff60384ade76267c42e756c6a09d0f.pnj"/>
+<img src="https://64.media.tumblr.com/c6b8f0a7ba57aeb8bd5bd0f6f5e981e1/6c4e914f0ab02e3a-52/s400x600/a9c53f498015505927bffa01f7185eff3b69c6cd.pnj"/>
 </h5>  
 
 ***
