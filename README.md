@@ -12,7 +12,7 @@ shig ── he/her ── polish
 </h5>  
 <div align="center">
 
-ㅤㅤㅤㅤ<p> [rentry](https://rentry.co/rmkshig) be normal in my [gstbook](https://bemyguest.123guestbook.com/)ㅤif you are mad over a github following, simply block me <p/>
+ㅤㅤㅤㅤ<p> [rentry](https://rentry.co/rmkshig) ㅤ [gstbook](https://bemyguest.123guestbook.com/)ㅤif you are mad over a github following, simply block me <p/>
 <p> usually above gi on safeㅤw2i if i dont respondㅤi follow people on github for funㅤfeel free to int in game </p>
 </div>
 
@@ -30,5 +30,5 @@ shig ── he/her ── polish
 ㅤ
 ㅤ
 ㅤ
-ㅤ
+ㅤ<p> ㅤ </p>ㅤ<p> ㅤ </p>ㅤ<p> ㅤ </p>ㅤ<p> ㅤ </p>ㅤ<p> ㅤ </p>ㅤ<p> ㅤ </p>
 ㅤ
