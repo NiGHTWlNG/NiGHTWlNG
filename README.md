@@ -8,7 +8,7 @@
 shig ── he/her ── polish
 </h4> 
 <h5 align="center">
-<img src="https://64.media.tumblr.com/83e64ca9b82c726a13418fc7e33f2ecc/62b1ff3c81ee6a21-b7/s640x960/a4dfbcc2ed10fbac816b686932c987edee951212.gifv"/>
+<img src="https://64.media.tumblr.com/2beed716bd02bd9a2be96b577e773e70/6c4e914f0ab02e3a-c2/s2048x3072/e1b1bc4418c9c15d8ae715910b668b1496373c92.pnj"/>
 </h5>  
 <h4 align="center">
 
