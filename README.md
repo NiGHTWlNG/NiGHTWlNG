@@ -1,7 +1,7 @@
 ***
 
 <h5 align="center">
-<img src="https://64.media.tumblr.com/821831f738f23858c1bbf6463385bde3/2619a0f1f622119d-f2/s400x600/2848ff3ae6f82f3583a5f3d94d91dffacf592a23.pnj"/>
+<img src="https://64.media.tumblr.com/a4d5f8f1cacc1198314e1681031cddeb/d38baf27a53016ff-a8/s400x600/2f1f0ea10f08d7cbbd919deb88cd592fa569dd8f.pnj"/>
 </h5>  
 
 <h4 align="center">
@@ -12,11 +12,11 @@ shig ── he/her ── polish
 </h5>  
 <h4 align="center">
 
-ㅤㅤㅤㅤ[rentry](https://rentry.co/rmkshig) ㅤㅤㅤㅤ be normal in my [gstbook](https://bemyguest.123guestbook.com/)ㅤㅤㅤㅤ crd to [kianaism](https://www.tumblr.com/kianaism/736706092205277184/furina-graphics?source=share) on tumblr for graphicsㅤㅤㅤㅤif you are mad over a github following, simply block meㅤㅤㅤㅤusually above gi on safeㅤㅤㅤㅤw2i if i dont respondㅤㅤㅤㅤi follow people on github for fun ! :3ㅤㅤㅤㅤ feel free to int in gameㅤㅤㅤㅤ whisper me 'sano smells' for a cookie
+ㅤㅤㅤㅤ[rentry](https://rentry.co/rmkshig) ㅤㅤㅤㅤ be normal in my [gstbook](https://bemyguest.123guestbook.com/)ㅤㅤㅤㅤif you are mad over a github following, simply block meㅤㅤㅤㅤusually above gi on safeㅤㅤㅤㅤw2i if i dont respondㅤㅤㅤㅤi follow people on github for fun ! :3ㅤㅤㅤㅤ feel free to int in gameㅤㅤㅤㅤ whisper me 'sano smells' for a cookie
 </h4>
 
 <h5 align="center">
-<img src="https://64.media.tumblr.com/f07d8252b6fe2377190372f9dc45ac77/2619a0f1f622119d-8f/s400x600/d00dd5a5fe8765a5a8f5dd257a7a684bea177d3e.pnj"/>
+<img src="https://64.media.tumblr.com/09e1e98163d9764404c98e20d24b505e/d38baf27a53016ff-6a/s400x600/556f2ed64af66ae4492bce1afaa699c0532536f4.pnj"/>
 </h5>  
 
 ***
