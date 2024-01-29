@@ -10,10 +10,11 @@ shig ── he/her ── polish
 <h5 align="center">
 <img src="https://64.media.tumblr.com/257a2dc583ad4eb289598a8b70cfef3c/2619a0f1f622119d-52/s250x400/acdcdc0476ee6d86a1b05a6839662fc6f924f9fe.gifv"/>
 </h5>  
-<h4 align="center">
+<div align="center">
 
-ㅤㅤㅤㅤ[rentry](https://rentry.co/rmkshig) ㅤㅤㅤㅤ be normal in my [gstbook](https://bemyguest.123guestbook.com/)ㅤㅤㅤㅤif you are mad over a github following, simply block meㅤㅤㅤㅤusually above gi on safeㅤㅤㅤㅤw2i if i dont respondㅤㅤㅤㅤi follow people on github for fun ! :3ㅤㅤㅤㅤ feel free to int in gameㅤㅤㅤㅤ whisper me 'sano smells' for a cookie
-</h4>
+ㅤㅤㅤㅤ<p> [rentry](https://rentry.co/rmkshig) be normal in my [gstbook](https://bemyguest.123guestbook.com/)ㅤif you are mad over a github following, simply block me <p/>
+<p> usually above gi on safeㅤw2i if i dont respondㅤi follow people on github for funㅤfeel free to int in game </p>
+</div>
 
 <h5 align="center">
 <img src="https://64.media.tumblr.com/09e1e98163d9764404c98e20d24b505e/d38baf27a53016ff-6a/s400x600/556f2ed64af66ae4492bce1afaa699c0532536f4.pnj"/>
@@ -23,3 +24,11 @@ shig ── he/her ── polish
 <p align ="center">
 <img src="https://external-media.spacehey.net/media/sJtfXyZngNj7jF_Rp4mV2jCmmn2wptj_UaSJJkDIhYO0=/https://i.postimg.cc/VLDyS4sp/96514967.jpg"/><img src="https://y2k.neocities.org/stamps/tumblr_inline_pbk6zbvnsb1vjkfs0_540.png"/><img src="https://y2k.neocities.org/stamps/my_memory_sucks_by_renatalmar.png"/><img src="https://external-media.spacehey.net/media/sBf_WuCdpYu3tWd8uGNiNF-vomFdmUYUjyeyTcoQaG4Y=/https://media.discordapp.net/attachments/988467825452670996/988470269180014632/11.gif"/><img src="https://64.media.tumblr.com/d119023c93b5ccf0cb43b15ca0f0d4df/tumblr_pxdvwo0Ie21xbgu08o3_100.png" /><img src="https://supplies.ju.mp/assets/images/gallery01/f3384d1e.png?v=9163b103" />
 </p>
+ㅤ
+ㅤ
+ㅤ
+ㅤ
+ㅤ
+ㅤ
+ㅤ
+ㅤ
