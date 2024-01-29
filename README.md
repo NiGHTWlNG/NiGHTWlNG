@@ -10,12 +10,12 @@
 shig ── he/her ── polish
 </h4> 
 <h5 align="center">
-<img src="https://64.media.tumblr.com/131639d081f1bcd309a3430beca95201/31a53a8d0b1eac21-a0/s250x400/a18970e9ce68cd8fd3d884987e5a740c0d4a6d34.gifv"/>
+<img src="https://64.media.tumblr.com/17c898b2f95dda3faa17c1381e72adb2/f91338ab3ff63472-1c/s250x400/d52597537a1e811583ff0b1b8b500196f41986dc.pnj"/>
 </h5>  
 <div align="center">
 
 ㅤㅤㅤㅤ<p> [rentry](https://rentry.co/rmkshig) ㅤ [gstbook](https://bemyguest.123guestbook.com/)ㅤif you are mad over a github following, simply block me <p/>
-<p> usually above gi on safeㅤw2i if i dont respondㅤi follow people on github for funㅤfeel free to int in game </p>
+<p> usually above gi on safeㅤw2i if i dont respondㅤfeel free to int in game </p>
 </div>
 
 <h5 align="center">
