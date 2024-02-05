@@ -1,4 +1,4 @@
-!! im unfollowing anyone and refollowing ^_^
+!! im unfollowing and refollowing anyone who is following me ^_^
 
 ***
 <h5 align="center">
