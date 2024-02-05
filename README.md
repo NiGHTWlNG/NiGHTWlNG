@@ -1,4 +1,4 @@
-!! im gonna unfollow everyone in a week, ill refollow anyone who fllowed me back
+!! im unfollowing anyone and refollowing ^_^
 
 ***
 <h5 align="center">
