@@ -3,7 +3,7 @@
 shig ── he/her ── polish
 </p> 
 <h5 align="center">
-<img src="https://64.media.tumblr.com/a766ecc0fdae9260bdb321dbec56e365/f84a7ac17a8ffb05-b3/s1280x1920/f94ae9c69d93171fe78944be0dfa0dc6a658b27a.pnj"/>
+<img src="https://64.media.tumblr.com/fd7d7604da8953b910dea5f9bd0edb21/354aeaedb35249b1-ac/s400x600/2be6fadf1fbfa00846d32cb8abd1918fd16ee6bf.pnj"/>
 </h5>  
 <div align="center">
 
