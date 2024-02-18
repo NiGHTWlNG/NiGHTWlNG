@@ -7,7 +7,7 @@ shig ── he/her ── polish
 </p> 
 
 <p align="center">
-<img src="https://i.pinimg.com/originals/b4/14/6f/b4146f3c14058c19d6b11804dea05a01.gif"/>
+<img src="https://s1.ezgif.com/tmp/ezgif-1-85c3518d6c.png"/>
 </p>
 
 <div align="center">
