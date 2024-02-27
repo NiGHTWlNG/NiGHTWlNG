@@ -1,4 +1,9 @@
-https://arab.org/click-to-help/palestine/ <-- click to help palestine
+<p align="center">
+HELP PALESTINE
+</p>
+<p align="center">
+https://arab.org/click-to-help/palestine/ 
+</p>
 
 <p align="center">
 <img src="https://64.media.tumblr.com/c6431ddc34a9f462447077e6ee143be7/e3b5b0501b44053f-57/s500x750/0e989733d6a7b8b6db060f497386f1c722d15e8f.pnj"/>
