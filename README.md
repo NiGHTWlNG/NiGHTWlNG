@@ -7,7 +7,7 @@ HELP PALESTINE https://arab.org/click-to-help/palestine/
 </p>
 
 <p align="center">
-shig ── he/her ── polish
+$${\color{lightblue}shig ── he/her ── polish}$$
 </p> 
 
 <p align="center">
@@ -17,7 +17,7 @@ shig ── he/her ── polish
 <div align="center">
 
 ㅤㅤㅤㅤ<p> [! about me](https://rentry.co/rmkshig) ㅤ [leave a message !](https://bemyguest.123guestbook.com/)ㅤ<p/>
-<p> usually above gi on safeㅤw2i if i dont respondㅤfeel free to int in game </p>
+<p> $${\color{lightblue}usually \space above \space gi \space on \space safe \spaceㅤ\space w2i \space if \space i \space dont \space respond \spaceㅤ\space feel \space free \space to \space int \space in \space game}$$ </p<
 </div>
 
 
