@@ -1,8 +1,5 @@
 <p align="center">
-HELP PALESTINE
-</p>
-<p align="center">
-https://arab.org/click-to-help/palestine/ 
+HELP PALESTINE https://arab.org/click-to-help/palestine/ 
 </p>
 
 <p align="center">
