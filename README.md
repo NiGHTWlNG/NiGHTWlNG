@@ -1,6 +1,6 @@
 <h1 align="center">
 
-[HELP PALESTINE](https://arab.org/click-to-help/palestine/) 
+[HELP PALESTINE with only one click](https://arab.org/click-to-help/palestine/) 
 </h1>
 
 <p align="center">
