@@ -1,10 +1,10 @@
 <div align="center">
 
-[help people with only one click, its free](https://arab.org/click-to-help/palestine/) 
+[help people with only one click](https://arab.org/click-to-help/palestine/) 
 </div>
 <h1 align="center">
 
-[HELP PALESTINE ](https://arab.org/click-to-help/palestine/) 
+[HELP PALESTINE, its free ](https://arab.org/click-to-help/palestine/) 
 </h1>
 
 <p align="center">
