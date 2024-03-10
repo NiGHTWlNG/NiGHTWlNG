@@ -12,7 +12,7 @@ $\text{\color{lightblue}{shig \ ─ \ she/her}}$
 
 <div align="center">
 
-### [.co/rmkshig](https://rentry.co/rmkshig) ㅤ [gstbook](https://bemyguest.123guestbook.com/) ㅤ [helpalestine](https://arab.org/click-to-help/palestine/)  <p/>
+## [co/rmkshig](https://rentry.co/rmkshig) ㅤ[gstbook](https://bemyguest.123guestbook.com/)ㅤ [helpalestine](https://arab.org/click-to-help/palestine/)<p/>
 $\text{\color{lightblue}{usually \ above \ gi,ㅤ\ if \ afk \ w2i \ ㅤ }}$
 
 <p align="center">
