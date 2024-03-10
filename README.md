@@ -7,7 +7,7 @@ $\text{\color{lightblue}{shig \ ─ \ she/her}}$
 
 </p> 
 <p align="center">
-<img src="https://i.pinimg.com/originals/b4/14/6f/b4146f3c14058c19d6b11804dea05a01.gif"/>
+<img src="https://64.media.tumblr.com/95a602f6e33694dccb9bcb4a903afa1a/d56aa8fb0bfe30ca-f1/s400x600/09415f9e30feb9f4ab45f7042d6b9c2e1394d3e2.pnj"/>
 </p>
 
 <div align="center">
