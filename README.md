@@ -13,7 +13,7 @@ $\text{\color{lightblue}{shig \ ─ \ she/her}}$
 <div align="center">
 
 ### [.co/rmkshig](https://rentry.co/rmkshig) ㅤ[gstbook](https://bemyguest.123guestbook.com/)ㅤ [helpalestine](https://arab.org/click-to-help/palestine/)<p/>
-$\text{\color{lightblue}{usually \ above \ gi,ㅤ\ if \ afk \ w2i \ ㅤ }}$
+$\text{\color{lightblue}{usually \ above \ gi,ㅤ\ if \ afk \ w2i}}$
 
 <p align="center">
 <img src="https://64.media.tumblr.com/05036dec81dfdbf8867a7e9f956b93f5/e3b5b0501b44053f-81/s500x750/1af096f25d7c3a00087823039f774e1bc6a15d68.pnj"/>
