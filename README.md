@@ -3,9 +3,9 @@
 </p>
 
 <p align="center">
-$\text{\color{lightblue}{shig \ ── \ he/her \ ── \ polish}}$
-</p> 
+$\text{\color{lightblue}{shig \ ─ \ she/her}}$
 
+</p> 
 <p align="center">
 <img src="https://i.pinimg.com/originals/b4/14/6f/b4146f3c14058c19d6b11804dea05a01.gif"/>
 </p>
