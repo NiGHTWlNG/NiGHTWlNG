@@ -1,4 +1,4 @@
-  [<img src="https://file.garden/ZiyMFQQoJTlsDCta/graphics/watermark1" /><br>](https://github.com/WRlOTHESLEY)
+  [<img src="https://file.garden/ZiyMFQQoJTlsDCta/graphics/watermark1" />](https://github.com/WRlOTHESLEY)
 <p align="center">
 <img src="https://file.garden/ZiyMFQQoJTlsDCta/graphics/div1.png" /> <br>
 <img src="https://file.garden/ZiyMFQQoJTlsDCta/graphics/nightwing4" /> <br>
@@ -12,5 +12,5 @@
 </p>
 <div align="right">
   
-  [<img src="https://file.garden/ZiyMFQQoJTlsDCta/graphics/watermark1" /><br>](https://github.com/WRlOTHESLEY)
+  [<img src="https://file.garden/ZiyMFQQoJTlsDCta/graphics/watermark1" />](https://github.com/WRlOTHESLEY)
 </div>
