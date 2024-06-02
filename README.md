@@ -1,3 +1,4 @@
+![](https://komarev.com/ghpvc/?username=NiGHTWlNG&style=for-the-badge)
   [<img src="https://file.garden/ZiyMFQQoJTlsDCta/graphics/watermark1" />](https://github.com/WRlOTHESLEY)
 <p align="center">
 <img src="https://file.garden/ZiyMFQQoJTlsDCta/graphics/div1.png" /> <br>
@@ -15,5 +16,3 @@
   
   [<img src="https://file.garden/ZiyMFQQoJTlsDCta/graphics/watermark1" />](https://github.com/WRlOTHESLEY)
 </div>
-
-  ![](https://komarev.com/ghpvc/?username=NiGHTWlNG)
