@@ -6,7 +6,7 @@
 ㅤ  <br> 
 ㅤ  <br> 
 ㅤ  <br> <img src="https://i.imgur.com/PKUzndN.png" />
-ㅤ  <br>  Choćbym prącie wsadził w blender
+ㅤ  <br>  Choćbym prącie wsadził w blender<br>
 Nie zrozumiem co to gender <br>
 ㅤ  <br> 
 ㅤ  <br> 
