@@ -1,7 +1,7 @@
  <p align="center"
 
 ㅤ  <br> 
-![](https://komarev.com/ghpvc/?username=nightwlng&color=blue)
+![](https://komarev.com/ghpvc/?username=nightwlng&color=black)
 
  <p align="center"
 
