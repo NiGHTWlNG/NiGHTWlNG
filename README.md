@@ -5,7 +5,7 @@
 
  <p align="center"
 
-<sup>shig</sup> <kbd>she</kbd>
+ <sup>shig</sup> <kbd>she</kbd> <img src="https://enchantments.carrd.co/assets/images/gallery19/c63c7570.gif?v=976bb919"/>
 </p>
 ㅤ  <br> 
 ㅤ  <br> 
