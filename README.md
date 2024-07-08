@@ -11,7 +11,7 @@
  </p>
  <p align="center"
 
-![](https://komarev.com/ghpvc/?username=nightwlng&color=020203)
+![](https://komarev.com/ghpvc/?username=nightwlng&color=020203&label=🦴)
 
 ㅤ  <br> ㅤ  <br> ㅤ  <br> ㅤ  <br> ㅤ  <br> ㅤ  <br> ㅤ  <br> 
 
