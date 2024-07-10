@@ -1,6 +1,6 @@
  <p align="center"
 
-ㅤ  <br> ㅤ  <br> ㅤ  <br> ㅤ  <br> ㅤ  <br> ㅤ  <br> ㅤ  <br>  ㅤ  <br> 
+ㅤ  <br> ㅤ  <br> ㅤ  <br> ㅤ  <br> ㅤ  <br> ㅤ  <br> ㅤ  <br>  ㅤ  <br>  ㅤ  <br>  ㅤ  <br> 
 
  <p align="center"
 
@@ -16,7 +16,7 @@
  <p align="center"
 
 <sup>[atabook](https://planetlord.atabook.org) -- [.co/s--v](https://rentry.co/s--v) -- [.co/s--vcopiers](https://rentry.co/s--vcopiers) -- [.co/howtotint](https://rentry.co/howtotint) </sup>
-ㅤ  <br> ㅤ  <br> ㅤ  <br> ㅤ  <br> ㅤ  <br> ㅤ  <br> ㅤ  <br>  ㅤ  <br> 
+ㅤ  <br> ㅤ  <br> ㅤ  <br> ㅤ  <br> ㅤ  <br> ㅤ  <br> ㅤ  <br>  ㅤ  <br>  ㅤ  <br>  ㅤ  <br> 
 
  
 </p>
