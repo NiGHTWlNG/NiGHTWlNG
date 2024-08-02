@@ -4,7 +4,7 @@
  <sup>shig</sup> <kbd>she</kbd> <img src="https://enchantments.carrd.co/assets/images/gallery06/b1b181cd.gif?v=976bb919"/>
 </p>
  <p align="center">
-<img src="https://i.imgur.com/VOaYbUU.png" />
+<img src="https://i.imgur.com/2zgDKFD.png" />
  </p>
  <p align="center"
 
