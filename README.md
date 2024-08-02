@@ -8,7 +8,7 @@
 </p>
 <p align="center"
 
-<sup> ![[atabook](https://planetlord.atabook.org)](https://i.imgur.com/iV4eJ4M.png) -- ![[.co/wojtekgolabiseks](https://rentry.co/wojtekgolabiseks)](https://i.imgur.com/vQvMq4O.png) -- ![[s--vcopiers](https://rentry.co/s--vcopiers)](https://i.imgur.com/TvGpwtB.png) -- ![[.co/howtotint](https://rentry.co/howtotint)](https://i.imgur.com/LFiNZbH.png) <br> </sup>
+<sup> [![](https://i.imgur.com/iV4eJ4M.png)](https://planetlord.atabook.org) -- ![[.co/wojtekgolabiseks](https://rentry.co/wojtekgolabiseks)](https://i.imgur.com/vQvMq4O.png) -- ![[s--vcopiers](https://rentry.co/s--vcopiers)](https://i.imgur.com/TvGpwtB.png) -- ![[.co/howtotint](https://rentry.co/howtotint)](https://i.imgur.com/LFiNZbH.png) <br> </sup>
  <p align="center">
 
 <img src="https://i.imgur.com/QR8WVmd.png"/>
