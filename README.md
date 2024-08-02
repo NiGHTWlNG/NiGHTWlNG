@@ -1,5 +1,5 @@
  <p align="center">
-<img src="https://i.imgur.com/zCTnhCm.png" />
+<img src="https://i.imgur.com/1F1IiGY.png" />
 
 <p align="center"
 
@@ -11,4 +11,4 @@
 <sup>[atabook](https://planetlord.atabook.org) -- [.co/wojtekgolabiseks](https://rentry.co/wojtekgolabiseks) -- [.co/s--vcopiers](https://rentry.co/s--vcopiers) -- [.co/howtotint](https://rentry.co/howtotint)<br> </sup>
  <p align="center">
 
-<img src="https://i.imgur.com/avmoguj.png"/>
+<img src="https://i.imgur.com/QR8WVmd.png"/>
